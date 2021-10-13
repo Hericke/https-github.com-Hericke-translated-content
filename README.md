@@ -1,1 +1,0 @@
-# https-github.com-Hericke-translated-content
